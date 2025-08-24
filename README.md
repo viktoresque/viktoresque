@@ -5,7 +5,7 @@
 
 <div align="center"> boi whaaat
   
-[𝗰𝗮𝗿𝗿𝗱](https://viktoresque.carrd.co/) ⠀⠀‎ ‎ ‎ [𝗮𝘁𝗮𝗯𝗼𝗼𝗸](https://viktoresque.atabook.org/?page=1)
+# [𝗰𝗮𝗿𝗿𝗱](https://viktoresque.carrd.co/) ⠀⠀‎ ‎ ‎ [𝗮𝘁𝗮𝗯𝗼𝗼𝗸](https://viktoresque.atabook.org/?page=1)
 <div align="center"> <img src="https://komarev.com/ghpvc/?username=viktoresque&label=　　𓎟𓎟++each+view=1+pushup++𓎟𓎟　　&color=C2C978&style=plastic" alt="viktoresque" /> 
   
 <div align="center"><img width="204" height="204" alt="Untitled305_20250726204355" src="https://github.com/user-attachments/assets/0c1741fe-d7e4-4522-bca2-2af61d153a45" />
